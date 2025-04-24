@@ -1,0 +1,1 @@
+# OpenWrtxitongyizhidaoi.MX6ULkaifabanzhinan
